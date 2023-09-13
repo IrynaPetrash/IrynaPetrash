@@ -1,5 +1,5 @@
 
-# Hi, I'm Irytna! 👋
+# Hi, I'm Iryna! 👋
 
 
 ## Badges
